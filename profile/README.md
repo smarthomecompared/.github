@@ -4,11 +4,11 @@ Comparing the best Smart Home devices: thermostats, cameras, doorbells, lights, 
 
 👉 https://smarthomecompared.com
 
-## Smart Home Deals
+## Smart Home News Podcast
 
-Discover the best smart home discounts across cameras, sensors, thermostats, doorbells, and more. Automatically filtered so you only see real price drops.
+Your weekly briefing on the smart home world. We break down the news that matters across cameras, sensors, thermostats, doorbells, locks and hubs, so you can choose better gear without the hype.
 
-👉 https://smarthomedealsnow.com
+👉 https://smarthomecompared.com/podcast
 
 ## Smart Home Planner
 
